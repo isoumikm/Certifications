@@ -1,2 +1,2 @@
 # Certifications
-All my certifications from 2019-2020
+All my certifications in 2020
